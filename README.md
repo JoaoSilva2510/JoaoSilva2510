@@ -9,6 +9,7 @@ Meu nome é João Pedro de Oliveira
 
 ###Você pode entrar em contato comigo pelo meu e-mail do arroba escola 📬
 
-jooo.silva2510@escola.pr.gov.br
+joao.silva2510@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/jojos-bizarre-adventure-anime-jotaro-jotaro-kujo-dancing-gif-17580280)
+
+![](https://tenor.com/pt-BR/view/jojo-anime-jojos-bizarre-adventure-show-cartoon-gif-14672131)
