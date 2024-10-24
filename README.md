@@ -12,4 +12,4 @@ Meu nome é João Pedro de Oliveira
 joao.silva2510@escola.pr.gov.br
 
 
-![](https://tenor.com/pt-BR/view/jojo-anime-jojos-bizarre-adventure-show-cartoon-gif-14672131)
+![](https://media1.tenor.com/m/RbmvWMGH2fsAAAAd/jojo-anime.gif)
