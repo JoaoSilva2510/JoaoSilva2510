@@ -12,4 +12,4 @@ Meu nome é João Pedro de Oliveira
 joao.silva2510@escola.pr.gov.br
 
 
-![](https://tenor.com/pt-BR/view/smart-cyberpunk2077-think-about-it-you-feel-me-cyberpunk-gif-27166102)
+![](<div class="tenor-gif-embed" data-postid="27166102" data-share-method="host" data-aspect-ratio="1.78771" data-width="100%"><a href="https://tenor.com/view/smart-cyberpunk2077-think-about-it-you-feel-me-cyberpunk-gif-27166102">Smart Cyberpunk2077 GIF</a>from <a href="https://tenor.com/search/smart-gifs">Smart GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
