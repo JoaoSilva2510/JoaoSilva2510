@@ -12,4 +12,4 @@ Meu nome é João Pedro de Oliveira
 joao.silva2510@escola.pr.gov.br
 
 
-![](https://media1.tenor.com/m/pRVYJPW_NA8AAAAC/smart-cyberpunk2077.gif)
+![](https://tenor.com/pt-BR/view/smart-cyberpunk2077-think-about-it-you-feel-me-cyberpunk-gif-27166102)
